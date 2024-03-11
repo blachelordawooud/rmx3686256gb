@@ -1,0 +1,2 @@
+# rmx3686256gb
+Realme10pro+5G RMX3686 RAM12 256
